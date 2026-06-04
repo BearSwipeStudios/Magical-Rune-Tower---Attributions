@@ -17,6 +17,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Fiery Magic Crystal Gem" (https://skfb.ly/pz8JF) by suddel is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Void-Touched Crystal Rock" (https://skfb.ly/pIZXX) by PuzzledPapaya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Mineral Crystal Prop" (https://skfb.ly/pINDB) by Vaportrash is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
   
 ## Sounds
 
