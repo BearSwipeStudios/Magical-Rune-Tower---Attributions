@@ -11,7 +11,8 @@ Your work inspires us and countless others in the community. ❤️🐾
 
 ## 3D Models
 - "Crystal Pack Stylized" (https://skfb.ly/6URYJ) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-
+- 
+- 
 - 
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
