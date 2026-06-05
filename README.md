@@ -18,6 +18,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Fiery Magic Crystal Gem" (https://skfb.ly/pz8JF) by suddel is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Mineral Crystal Prop" (https://skfb.ly/pINDB) by Vaportrash is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "big banana leaf" (https://skfb.ly/oSNEs) by sv1nks is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
