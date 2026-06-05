@@ -11,14 +11,13 @@ Your work inspires us and countless others in the community. ❤️🐾
 
 ## 3D Models
 - "Crystal Pack Stylized" (https://skfb.ly/6URYJ) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-- 
+- "Void-Touched Crystal Rock" (https://skfb.ly/pIZXX) by PuzzledPapaya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - 
 - 
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fiery Magic Crystal Gem" (https://skfb.ly/pz8JF) by suddel is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-- "Void-Touched Crystal Rock" (https://skfb.ly/pIZXX) by PuzzledPapaya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Mineral Crystal Prop" (https://skfb.ly/pINDB) by Vaportrash is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Shaman Potion" (https://skfb.ly/ouxzB) by Ergoni is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
