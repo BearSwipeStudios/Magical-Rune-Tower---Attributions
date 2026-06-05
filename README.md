@@ -12,8 +12,8 @@ Your work inspires us and countless others in the community. ❤️🐾
 ## 3D Models
 - "Crystal Pack Stylized" (https://skfb.ly/6URYJ) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Void-Touched Crystal Rock" (https://skfb.ly/pIZXX) by PuzzledPapaya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-- 
-- 
+- "Stylized Treasure Map" (https://skfb.ly/6ZVER) by Izzy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+-----------------------
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
