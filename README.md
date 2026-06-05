@@ -19,8 +19,8 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Mineral Crystal Prop" (https://skfb.ly/pINDB) by Vaportrash is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "big banana leaf" (https://skfb.ly/oSNEs) by sv1nks is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
------------------------
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+-----------------------
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
