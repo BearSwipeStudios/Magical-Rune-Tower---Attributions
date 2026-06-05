@@ -14,6 +14,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Void-Touched Crystal Rock" (https://skfb.ly/pIZXX) by PuzzledPapaya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Treasure Map" (https://skfb.ly/6ZVER) by Izzy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Shaman Potion" (https://skfb.ly/ouxzB) by Ergoni is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Potion" (https://skfb.ly/ov9G9) by rudolfs is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Alchemist Prop" (https://skfb.ly/oyHrS) by Yury Misiyuk is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Compass" (https://skfb.ly/oP6qT) by MAR.COS. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
