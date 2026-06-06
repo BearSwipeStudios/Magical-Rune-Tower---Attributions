@@ -30,6 +30,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Easter egg" (https://skfb.ly/o9JHD) by Jane_k is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Dino Egg" (https://skfb.ly/6XBHZ) by MMandali is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Health Potion - Mana Potion" (https://skfb.ly/ouxHL) by Ergoni is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
