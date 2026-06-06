@@ -25,6 +25,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Mushroom (1)" (https://skfb.ly/oHsQ7) by Agata Wilczek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Mushroom (1.1)" (https://skfb.ly/oHAoD) by Agata Wilczek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Mushroom (3)" (https://skfb.ly/oHsLn) by Agata Wilczek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Mushroom (5)" (https://skfb.ly/oHsON) by Agata Wilczek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Low Poly Stylized Gemstones" (https://skfb.ly/oUTpS) by Erdem Dağdelen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
