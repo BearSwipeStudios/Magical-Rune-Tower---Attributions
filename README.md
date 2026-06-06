@@ -34,6 +34,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Lobster" (https://skfb.ly/on6RX) by Ant Gregory is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magical Flask" (https://skfb.ly/oQZwV) by Shania Matyschok is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Tree" (https://skfb.ly/pDRu9) by m.bazdideh79 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Plant Pack" (https://skfb.ly/oBWK8) by Marbles studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
