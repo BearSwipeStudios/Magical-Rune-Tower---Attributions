@@ -36,6 +36,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Tree" (https://skfb.ly/pDRu9) by m.bazdideh79 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Plant Pack" (https://skfb.ly/oBWK8) by Marbles studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Adventure Pack" (https://skfb.ly/ovWMQ) by Big guy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized pictures with cats" (https://skfb.ly/pwRP8) by NEXIC is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
