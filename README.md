@@ -44,7 +44,6 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Lowpoly Stylized 3D Icons In the Jar" (https://skfb.ly/6YrqA) by ferofluid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Low poly - Stylized Game Items - Poison" (https://skfb.ly/oXyYI) by Assemblr is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Health Potion" (https://skfb.ly/6zYKx) by Kristof_Kalmar is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
------------------------
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
