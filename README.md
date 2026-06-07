@@ -42,6 +42,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized skull" (https://skfb.ly/ooOE8) by Coffeek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Bread_toon" (https://skfb.ly/pHFYT) by Sir Erdees is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Lowpoly Stylized 3D Icons In the Jar" (https://skfb.ly/6YrqA) by ferofluid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Low poly - Stylized Game Items - Poison" (https://skfb.ly/oXyYI) by Assemblr is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 -----------------------
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
