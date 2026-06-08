@@ -46,6 +46,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Health Potion" (https://skfb.ly/6zYKx) by Kristof_Kalmar is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized PBR Wooden Beam Trim Sheet" (https://skfb.ly/oXKWV) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Rogoto - Normal Alien Nest" (https://skfb.ly/oPwEF) by monocromo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "A delicious fish with chop board and knife" (https://skfb.ly/psHpW) by sanjay vadhaiya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
