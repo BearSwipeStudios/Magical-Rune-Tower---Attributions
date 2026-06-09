@@ -48,6 +48,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Rogoto - Normal Alien Nest" (https://skfb.ly/oPwEF) by monocromo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "A delicious fish with chop board and knife" (https://skfb.ly/psHpW) by sanjay vadhaiya is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Sword Rack 02" (https://skfb.ly/oTpNp) by soldini is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Swordtember 2024 Day 20: Candle" (https://skfb.ly/pqWOP) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
