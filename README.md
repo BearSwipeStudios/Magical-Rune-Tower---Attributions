@@ -60,6 +60,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Swordtember 2022 Day 21-B: Thunderstorm" (https://skfb.ly/oy7ND) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Sample Draft Cucumber" (https://skfb.ly/owNzZ) by Sir Erdees is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spore Bomb" (https://skfb.ly/pt87K) by Juano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Asset with handpainted textures" (https://skfb.ly/oUrz6) by nottodayrender is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
