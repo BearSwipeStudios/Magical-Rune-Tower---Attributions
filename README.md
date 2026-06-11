@@ -54,6 +54,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Swordtember 2022 Day 17-A: Topiary" (https://skfb.ly/oxZoF) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Swordtember 2022 Day 7-B: Galaxy" (https://skfb.ly/oxKxV) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Swordtember 2022 Day 30-B: Snackies" (https://skfb.ly/oyCrR) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Swordtember 2021 Day 29: Wind" (https://skfb.ly/o7A6R) by Liberi Arcano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
