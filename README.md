@@ -61,6 +61,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Sample Draft Cucumber" (https://skfb.ly/owNzZ) by Sir Erdees is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spore Bomb" (https://skfb.ly/pt87K) by Juano is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Asset with handpainted textures" (https://skfb.ly/oUrz6) by nottodayrender is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "EGG LAVA" (https://skfb.ly/ptGPs) by Ny3ko is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
