@@ -67,6 +67,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Low Poly Stylized Door" (https://skfb.ly/optDK) by Murat Can ÜNAL is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Garden (stylized pack)" (https://skfb.ly/oWTQA) by PeLmEsHkO is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spider Potion" (https://skfb.ly/ossxX) by Enoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Spider" (https://skfb.ly/oKnWD) by Gektark is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
