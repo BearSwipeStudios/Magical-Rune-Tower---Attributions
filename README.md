@@ -69,6 +69,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Spider Potion" (https://skfb.ly/ossxX) by Enoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spider" (https://skfb.ly/oKnWD) by Gektark is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Shield of Fire" (https://skfb.ly/oOOUE) by Devrim Kutlu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Golden Phoenix Knight Shield" (https://skfb.ly/pKH6P) by Yevhenii3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
