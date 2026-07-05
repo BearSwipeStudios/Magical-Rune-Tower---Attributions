@@ -71,6 +71,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Shield of Fire" (https://skfb.ly/oOOUE) by Devrim Kutlu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Golden Phoenix Knight Shield" (https://skfb.ly/pKH6P) by Yevhenii3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Texture pack 2 (Ground)" (https://skfb.ly/oKMsn) by rudolfs is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Gnomo - Libel Academy" (https://skfb.ly/oIpYq) by ElPinguinoCoyosaurio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "LOW POLY WOOD TOOLS ASSET PACK" (https://skfb.ly/p9IY9) by Ksatta is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized melee weapons and explosives" (https://skfb.ly/oXnBO) by haykel-shaba is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Staff" (https://skfb.ly/6X6yA) by freshlybaked is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
