@@ -75,6 +75,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "LOW POLY WOOD TOOLS ASSET PACK" (https://skfb.ly/p9IY9) by Ksatta is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized melee weapons and explosives" (https://skfb.ly/oXnBO) by haykel-shaba is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Staff" (https://skfb.ly/6X6yA) by freshlybaked is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Healing Scepter" (https://skfb.ly/orM6o) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
   
 ## Sounds
