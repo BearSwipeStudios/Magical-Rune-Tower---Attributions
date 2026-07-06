@@ -86,6 +86,8 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Barrel" (https://skfb.ly/pITyo) by Iris-Jase is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized  Wraith Knight / Death Warrior" (https://skfb.ly/oFMSV) by Babevid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Skeleton A-Pose" (https://skfb.ly/6YJBI) by Monhoo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Dead_Skeleton_Pose" (https://skfb.ly/6Ytn8) by Hokkaidooh is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Dead_Skeleton" (https://skfb.ly/6YsWP) by Hokkaidooh is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
