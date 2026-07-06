@@ -84,6 +84,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylised Norse Horn" (https://skfb.ly/ouWtz) by Cleo Renshaw is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Stylized Troll - Game Ready Asset" (https://skfb.ly/oPNNw) by rkna is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Barrel" (https://skfb.ly/pITyo) by Iris-Jase is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized  Wraith Knight / Death Warrior" (https://skfb.ly/oFMSV) by Babevid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
