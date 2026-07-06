@@ -82,6 +82,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Knight - Martín" (https://skfb.ly/oAwXG) by Babevid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Leaf Knight" (https://skfb.ly/oWIKR) by CEDDDD is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylised Norse Horn" (https://skfb.ly/ouWtz) by Cleo Renshaw is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Fantasy Stylized Troll - Game Ready Asset" (https://skfb.ly/oPNNw) by rkna is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
