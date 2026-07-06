@@ -76,6 +76,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized melee weapons and explosives" (https://skfb.ly/oXnBO) by haykel-shaba is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Staff" (https://skfb.ly/6X6yA) by freshlybaked is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Healing Scepter" (https://skfb.ly/orM6o) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Old God's Seeing Eye" (https://skfb.ly/6ZEpR) by Wenhua YE is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
