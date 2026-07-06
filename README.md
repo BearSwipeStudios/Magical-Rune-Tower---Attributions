@@ -77,6 +77,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Staff" (https://skfb.ly/6X6yA) by freshlybaked is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Healing Scepter" (https://skfb.ly/orM6o) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Old God's Seeing Eye" (https://skfb.ly/6ZEpR) by Wenhua YE is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "RPG Dice Set" (https://skfb.ly/prnTt) by ghosted is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
