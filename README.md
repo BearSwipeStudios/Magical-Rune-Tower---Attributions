@@ -80,6 +80,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "RPG Dice Set" (https://skfb.ly/prnTt) by ghosted is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Gold/Money bag" (https://skfb.ly/6YyHq) by m4ty1k4 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Knight - Martín" (https://skfb.ly/oAwXG) by Babevid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Leaf Knight" (https://skfb.ly/oWIKR) by CEDDDD is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
