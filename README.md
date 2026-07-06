@@ -76,8 +76,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized melee weapons and explosives" (https://skfb.ly/oXnBO) by haykel-shaba is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Staff" (https://skfb.ly/6X6yA) by freshlybaked is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Healing Scepter" (https://skfb.ly/orM6o) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-- "Bone Golem" (https://skfb.ly/ooBo9) by Tor Halle-McIntyre is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-Model & Texture by Mophs @ Open Game Art Concept art by Nubux ( http://opengameart.org/content/bone-gollem-concept-art )
+
 
   
 ## Sounds
