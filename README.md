@@ -79,6 +79,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Old God's Seeing Eye" (https://skfb.ly/6ZEpR) by Wenhua YE is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "RPG Dice Set" (https://skfb.ly/prnTt) by ghosted is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Gold/Money bag" (https://skfb.ly/6YyHq) by m4ty1k4 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Knight - Martín" (https://skfb.ly/oAwXG) by Babevid is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
