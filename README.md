@@ -95,6 +95,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Gamorrean" (https://skfb.ly/6zAOJ) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Ettin" (https://skfb.ly/6XC6N) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "guard" (https://skfb.ly/6VtwG) by adamnsexyname (Pieter) is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Sanctified Bell Knight" (https://skfb.ly/pKHFn) by ZeRealSpone is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
