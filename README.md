@@ -90,6 +90,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Dead_Skeleton" (https://skfb.ly/6YsWP) by Hokkaidooh is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Goblin" (https://skfb.ly/oHJFZ) by sonnguyenart is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Goblin Bastard" (https://skfb.ly/IIQJ) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "The Dwarf" (https://skfb.ly/JozH) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
