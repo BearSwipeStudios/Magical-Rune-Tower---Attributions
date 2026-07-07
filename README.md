@@ -89,6 +89,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Dead_Skeleton_Pose" (https://skfb.ly/6Ytn8) by Hokkaidooh is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Dead_Skeleton" (https://skfb.ly/6YsWP) by Hokkaidooh is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Goblin" (https://skfb.ly/oHJFZ) by sonnguyenart is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Goblin Bastard" (https://skfb.ly/IIQJ) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
