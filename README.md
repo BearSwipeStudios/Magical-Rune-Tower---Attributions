@@ -93,6 +93,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "The Dwarf" (https://skfb.ly/JozH) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Viking Girl" (https://skfb.ly/oquJO) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Gamorrean" (https://skfb.ly/6zAOJ) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Ettin" (https://skfb.ly/6XC6N) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
