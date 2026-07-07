@@ -98,6 +98,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Sanctified Bell Knight" (https://skfb.ly/pKHFn) by ZeRealSpone is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "slime creature" (https://skfb.ly/6ZRUY) by juan-miguelbauwens is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Frog Wizard" (https://skfb.ly/ooKZG) by courtneyclayart is licensed under Creative Commons Attribution-ShareAlike (http://creativecommons.org/licenses/by-sa/4.0/).
+- "Lizard Wizard" (https://skfb.ly/6u7HT) by SadAlexey is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
