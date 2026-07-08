@@ -110,6 +110,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Sweet Crab SketchfabWeekly!" (https://skfb.ly/oHy6O) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Halloween Cauldron" (https://skfb.ly/6VKTH) by OscarWW is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cauldron" (https://skfb.ly/6RtZJ) by Stuart Whittaker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Cauldron" (https://skfb.ly/oCCAD) by Anna Espenstein is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
