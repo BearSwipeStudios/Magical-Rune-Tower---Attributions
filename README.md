@@ -107,6 +107,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "LowPoly Stylized Meatbone" (https://skfb.ly/oE99p) by cat is activated is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Potteries (low poly)" (https://skfb.ly/pDwFA) by Skodvirr is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "crystal crab" (https://skfb.ly/6WVJx) by riki1806 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Sweet Crab SketchfabWeekly!" (https://skfb.ly/oHy6O) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
