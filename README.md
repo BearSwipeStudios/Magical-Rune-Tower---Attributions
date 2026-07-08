@@ -114,6 +114,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Green Frog" (https://skfb.ly/oxz7X) by Vladimir Galev is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Flower in a Vase" (https://skfb.ly/o8qnO) by Stylized_Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Scorpion" (https://skfb.ly/oUJJO) by GhulamSarwar is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Cat Skeleton Pose" (https://skfb.ly/ootRW) by Lucie Terryn is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
