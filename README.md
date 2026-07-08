@@ -102,6 +102,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Bull Knight" (https://skfb.ly/o6XoC) by Vlad Chok is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Armored Crab" (https://skfb.ly/o6A98) by Ischa Soetewey is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Domesticated Garden Gnome" (https://skfb.ly/pDLGC) by Schmoldt5000 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Blue Witch" (https://skfb.ly/6ZMoC) by moxstudios is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
