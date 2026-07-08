@@ -112,6 +112,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Cauldron" (https://skfb.ly/6RtZJ) by Stuart Whittaker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cauldron" (https://skfb.ly/oCCAD) by Anna Espenstein is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Green Frog" (https://skfb.ly/oxz7X) by Vladimir Galev is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Flower in a Vase" (https://skfb.ly/o8qnO) by Stylized_Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
