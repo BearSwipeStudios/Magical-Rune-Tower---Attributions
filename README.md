@@ -103,6 +103,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Armored Crab" (https://skfb.ly/o6A98) by Ischa Soetewey is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Axe And Shield" (https://skfb.ly/ooLQM) by Maksim Batyrev is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Fish" (https://skfb.ly/ooUDD) by Batuhan13 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Eye" (https://skfb.ly/6WMRs) by merrychuu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
