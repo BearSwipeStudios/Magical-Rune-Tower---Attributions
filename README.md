@@ -116,6 +116,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Scorpion" (https://skfb.ly/oUJJO) by GhulamSarwar is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cat Skeleton Pose" (https://skfb.ly/ootRW) by Lucie Terryn is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "BLUE HEAD" (https://skfb.ly/6RDzx) by Captain LowPoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Dried Chili Hanger (short)" (https://skfb.ly/oQ7Up) by anitatirts is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
