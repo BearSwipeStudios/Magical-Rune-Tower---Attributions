@@ -121,6 +121,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Skull And Bones" (https://skfb.ly/o8uyV) by pin2oo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Glass Dome" (https://skfb.ly/oJCJO) by martagarzia is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Plant Pack" (https://skfb.ly/6UKpJ) by Wren Mason-Blaug is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "House plant pot" (https://skfb.ly/oHzHC) by Forel" is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
