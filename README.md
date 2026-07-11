@@ -123,6 +123,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Plant Pack" (https://skfb.ly/6UKpJ) by Wren Mason-Blaug is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "House plant pot" (https://skfb.ly/oHzHC) by Forel" is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Easel cartoon" (https://skfb.ly/6YpS9) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Creature M2" (https://skfb.ly/ozprp) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
