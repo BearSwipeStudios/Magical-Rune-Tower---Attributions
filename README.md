@@ -122,6 +122,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Glass Dome" (https://skfb.ly/oJCJO) by martagarzia is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Plant Pack" (https://skfb.ly/6UKpJ) by Wren Mason-Blaug is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "House plant pot" (https://skfb.ly/oHzHC) by Forel" is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Easel cartoon" (https://skfb.ly/6YpS9) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
