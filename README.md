@@ -129,6 +129,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Horned Shield (gameready)" (https://skfb.ly/6XzUT) by Hockend is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Shield" (https://skfb.ly/oqOYo) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Strigiform Shield (Owl Shield)" (https://skfb.ly/o7MZn) by LachieRobertson is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Roman Scutum Shield" (https://skfb.ly/o7ONX) by DennisVanMalderen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
