@@ -130,6 +130,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Shield" (https://skfb.ly/oqOYo) by Adrian Carter is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Strigiform Shield (Owl Shield)" (https://skfb.ly/o7MZn) by LachieRobertson is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Roman Scutum Shield" (https://skfb.ly/o7ONX) by DennisVanMalderen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Dead Knight Sword and Shield" (https://skfb.ly/ooJNz) by Maksim Batyrev is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
