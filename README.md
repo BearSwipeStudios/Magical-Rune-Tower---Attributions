@@ -126,6 +126,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Creature M2" (https://skfb.ly/ozprp) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fox shield" (https://skfb.ly/6TGtq) by Eques_inferno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Shield" (https://skfb.ly/pvIoI) by racheller is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Horned Shield (gameready)" (https://skfb.ly/6XzUT) by Hockend is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
