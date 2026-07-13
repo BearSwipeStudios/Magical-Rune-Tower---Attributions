@@ -137,6 +137,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Xeno Flora - Alien Plant 05 BHS" (https://skfb.ly/pD6rJ) by Blender Head Studios is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "DREAMWEAVER FLOWER" (https://skfb.ly/oZt8C) by Uncanny Bingchilling is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Carnivorous Alien Plant with Moss and Fungus" (https://skfb.ly/o7KuQ) by KristaPolito is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "horrorific plant" (https://skfb.ly/oFMrX) by Nathan ROBERT is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
