@@ -132,6 +132,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Roman Scutum Shield" (https://skfb.ly/o7ONX) by DennisVanMalderen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Dead Knight Sword and Shield" (https://skfb.ly/ooJNz) by Maksim Batyrev is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Deku Shield - OOT" (https://skfb.ly/6UqYH) by Arkhelaos is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Xeno Flora - Alien Plant 01 BHS" (https://skfb.ly/pDR8Q) by Blender Head Studios is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
