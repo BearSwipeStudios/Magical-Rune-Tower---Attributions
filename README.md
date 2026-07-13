@@ -140,6 +140,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "horrorific plant" (https://skfb.ly/oFMrX) by Nathan ROBERT is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "А succulent plant" (https://skfb.ly/o9uqv) by AnnaZangieva is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Plant Project" (https://skfb.ly/6ZNTJ) by MoonSun41 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Alien Plant" (https://skfb.ly/6TRTx) by Joseph is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
