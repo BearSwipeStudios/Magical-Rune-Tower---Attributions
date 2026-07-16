@@ -151,6 +151,12 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Eyeball Plant" (https://skfb.ly/oqAHD) by Snarkle Studios is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Light Plant" (https://skfb.ly/6WMwF) by Meleagor is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Runic Spellbook – Arcane Magic" (https://skfb.ly/pEwPo) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook- Nature Magic" (https://skfb.ly/pEyIJ) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook- Protection Magic" (https://skfb.ly/pEJnD) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook – Fire Magic" (https://skfb.ly/pExxO) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook – Healing Magic" (https://skfb.ly/pEz6L) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook – Ice Magic" (https://skfb.ly/pExDZ) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Runic Spellbook – Light Magic" (https://skfb.ly/pEFsx) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
