@@ -157,6 +157,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Runic Spellbook – Healing Magic" (https://skfb.ly/pEz6L) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Runic Spellbook – Ice Magic" (https://skfb.ly/pExDZ) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Runic Spellbook – Light Magic" (https://skfb.ly/pEFsx) by Ynna Pixels is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Journal Book" (https://skfb.ly/pGpoR) by ProjakProjek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
