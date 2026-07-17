@@ -160,6 +160,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Journal Book" (https://skfb.ly/pGpoR) by ProjakProjek is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Wizard Book" (https://skfb.ly/oLRyU) by Tommy Kilpin is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Divine Tome" (https://skfb.ly/6SBED) by Kayla Hill is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "BOOK" (https://skfb.ly/oq7ps) by Cycle is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
