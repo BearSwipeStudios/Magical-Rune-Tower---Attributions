@@ -161,6 +161,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Fantasy Wizard Book" (https://skfb.ly/oLRyU) by Tommy Kilpin is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Divine Tome" (https://skfb.ly/6SBED) by Kayla Hill is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "BOOK" (https://skfb.ly/oq7ps) by Cycle is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Magical Spell Book" (https://skfb.ly/oZLKY) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
