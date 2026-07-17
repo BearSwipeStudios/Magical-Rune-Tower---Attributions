@@ -173,6 +173,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Alchemist's book" (https://skfb.ly/os6S8) by darkmoral is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Hand Painted Book" (https://skfb.ly/6UIx9) by Satendra Saraswat is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Mossy Book" (https://skfb.ly/onuUT) by Reidicus is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Magic Book" (https://skfb.ly/onVzH) by Oleksandr Tserkovniy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
