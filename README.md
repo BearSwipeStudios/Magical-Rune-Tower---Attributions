@@ -162,6 +162,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Divine Tome" (https://skfb.ly/6SBED) by Kayla Hill is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "BOOK" (https://skfb.ly/oq7ps) by Cycle is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magical Spell Book" (https://skfb.ly/oZLKY) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Book" (https://skfb.ly/oy6vK) by necrodream is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
