@@ -166,6 +166,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "#SketchfabWeeklyChallenge Book" (https://skfb.ly/osZSH) by Bob is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Book" (https://skfb.ly/6xDCB) by Gektark is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "book ouija" (https://skfb.ly/oozVW) by Vanessa Araújo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Necronomicon" (https://skfb.ly/6WZN9) by Kayla Hill is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
