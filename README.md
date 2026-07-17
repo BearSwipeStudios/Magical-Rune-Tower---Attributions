@@ -167,6 +167,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Book" (https://skfb.ly/6xDCB) by Gektark is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "book ouija" (https://skfb.ly/oozVW) by Vanessa Araújo is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Necronomicon" (https://skfb.ly/6WZN9) by Kayla Hill is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Tome (Game-Ready Model)" (https://skfb.ly/p8tS7) by Danil Mishatkin is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
