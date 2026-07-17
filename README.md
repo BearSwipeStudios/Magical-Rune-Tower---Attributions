@@ -163,6 +163,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "BOOK" (https://skfb.ly/oq7ps) by Cycle is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magical Spell Book" (https://skfb.ly/oZLKY) by mws3d is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Book" (https://skfb.ly/oy6vK) by necrodream is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "#SketchfabWeeklyChallenge Book" (https://skfb.ly/osZSH) by Bob is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
