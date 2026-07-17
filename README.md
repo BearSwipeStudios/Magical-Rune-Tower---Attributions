@@ -175,6 +175,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Mossy Book" (https://skfb.ly/onuUT) by Reidicus is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magic Book" (https://skfb.ly/onVzH) by Oleksandr Tserkovniy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Magical Book (Free to use)" (https://skfb.ly/oE9BO) by Ege Yavuz Özsoy is licensed under Creative Commons Attribution-ShareAlike (http://creativecommons.org/licenses/by-sa/4.0/).
+- "Book Set" (https://skfb.ly/6CMoz) by GruntWorks is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
