@@ -170,6 +170,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Tome (Game-Ready Model)" (https://skfb.ly/p8tS7) by Danil Mishatkin is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Book o' Spells" (https://skfb.ly/6ZQCB) by Carissa is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Book" (https://skfb.ly/o9rRE) by cringecrimson is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Alchemist's book" (https://skfb.ly/os6S8) by darkmoral is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
