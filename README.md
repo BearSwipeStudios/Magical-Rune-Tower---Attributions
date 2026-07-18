@@ -178,6 +178,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Book Set" (https://skfb.ly/6CMoz) by GruntWorks is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Book magic" (https://skfb.ly/o7VEr) by EdwinCaBe is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Pirate Book of Treasure Stylized" (https://skfb.ly/6WvWR) by Mayantique is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Magic Book Low-poly" (https://skfb.ly/otNxG) by TridentCorp is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
