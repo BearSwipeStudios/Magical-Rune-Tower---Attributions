@@ -185,6 +185,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Pen And Book" (https://skfb.ly/6WOIr) by tranhongdiep is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magic Pink Book" (https://skfb.ly/6WpO6) by sakhrynandrii is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Necromancer book" (https://skfb.ly/6SM8X) by Eques_inferno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylised_Book" (https://skfb.ly/pIwyY) by tornikegavashelishvili5 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
