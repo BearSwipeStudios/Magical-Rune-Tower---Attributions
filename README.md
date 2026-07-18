@@ -187,6 +187,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Necromancer book" (https://skfb.ly/6SM8X) by Eques_inferno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylised_Book" (https://skfb.ly/pIwyY) by tornikegavashelishvili5 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Celtic Book - Sketchfabweeklychallenge - Week 5" (https://skfb.ly/otouL) by Rosbergen Designs is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Cheese Book" (https://skfb.ly/ot6KF) by Duznot is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
