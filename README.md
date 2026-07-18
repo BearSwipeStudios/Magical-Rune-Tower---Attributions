@@ -183,6 +183,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Magic Book of Eden" (https://skfb.ly/FEsG) by luisservin89 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magic Book" (https://skfb.ly/6EysQ) by Jom is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Pen And Book" (https://skfb.ly/6WOIr) by tranhongdiep is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Magic Pink Book" (https://skfb.ly/6WpO6) by sakhrynandrii is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
