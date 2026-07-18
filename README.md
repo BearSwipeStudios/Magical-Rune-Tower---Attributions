@@ -186,6 +186,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Magic Pink Book" (https://skfb.ly/6WpO6) by sakhrynandrii is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Necromancer book" (https://skfb.ly/6SM8X) by Eques_inferno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylised_Book" (https://skfb.ly/pIwyY) by tornikegavashelishvili5 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Celtic Book - Sketchfabweeklychallenge - Week 5" (https://skfb.ly/otouL) by Rosbergen Designs is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
