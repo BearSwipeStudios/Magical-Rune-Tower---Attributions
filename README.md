@@ -190,6 +190,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Cheese Book" (https://skfb.ly/ot6KF) by Duznot is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magic Book" (https://skfb.ly/osBPI) by Nik_kale is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Book" (https://skfb.ly/6Vpvq) by magiccc is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Dark handbook of hands" (https://skfb.ly/oBNrB) by Max Drozdov is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
