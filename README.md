@@ -180,6 +180,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Pirate Book of Treasure Stylized" (https://skfb.ly/6WvWR) by Mayantique is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magic Book Low-poly" (https://skfb.ly/otNxG) by TridentCorp is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Book Of Sun" (https://skfb.ly/6zMJY) by SilverUnicorn is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Magic Book of Eden" (https://skfb.ly/FEsG) by luisservin89 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
