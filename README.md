@@ -192,6 +192,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Book" (https://skfb.ly/6Vpvq) by magiccc is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Dark handbook of hands" (https://skfb.ly/oBNrB) by Max Drozdov is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Rocks" (https://skfb.ly/oBNEx) by AyumiGranger is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Potion | FREE" (https://skfb.ly/oTEH7) by Sem is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
