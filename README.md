@@ -195,6 +195,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Potion | FREE" (https://skfb.ly/oTEH7) by Sem is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Free asset : Pirate Bomb" (https://skfb.ly/pCCpN) by Mohammad Abu Baker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Burlap sack 2" (https://skfb.ly/ouNN7) by MissLumos is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Mushroom House" (https://skfb.ly/puwvF) by nickheitzman is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
