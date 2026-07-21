@@ -197,6 +197,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Burlap sack 2" (https://skfb.ly/ouNN7) by MissLumos is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Mushroom House" (https://skfb.ly/puwvF) by nickheitzman is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cultist Prop Kit" (https://skfb.ly/oKHEF) by Spinnee is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "FISH" (https://skfb.ly/oqGTA) by rukitu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
