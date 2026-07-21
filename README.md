@@ -193,6 +193,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Dark handbook of hands" (https://skfb.ly/oBNrB) by Max Drozdov is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Rocks" (https://skfb.ly/oBNEx) by AyumiGranger is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Potion | FREE" (https://skfb.ly/oTEH7) by Sem is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Free asset : Pirate Bomb" (https://skfb.ly/pCCpN) by Mohammad Abu Baker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
