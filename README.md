@@ -199,6 +199,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Cultist Prop Kit" (https://skfb.ly/oKHEF) by Spinnee is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "FISH" (https://skfb.ly/oqGTA) by rukitu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Golden Nugget" (https://skfb.ly/oGpNp) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Free Pack - Stylized Hay Bale" (https://skfb.ly/prWqv) by PolyOne Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
