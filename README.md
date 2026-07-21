@@ -198,6 +198,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Mushroom House" (https://skfb.ly/puwvF) by nickheitzman is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cultist Prop Kit" (https://skfb.ly/oKHEF) by Spinnee is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "FISH" (https://skfb.ly/oqGTA) by rukitu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Golden Nugget" (https://skfb.ly/oGpNp) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
