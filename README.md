@@ -201,6 +201,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Golden Nugget" (https://skfb.ly/oGpNp) by emelyarules is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Free Pack - Stylized Hay Bale" (https://skfb.ly/prWqv) by PolyOne Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Eggloo" (https://skfb.ly/oBCBr) by Duznot is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Nessie Skeleton Apex" (https://skfb.ly/o9pYA) by Dylan is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
