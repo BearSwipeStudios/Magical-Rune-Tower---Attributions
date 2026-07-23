@@ -223,6 +223,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "lil' Grub Bug" (https://skfb.ly/oPBnw) by Lou! is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylised Thatch Roundhouse" (https://skfb.ly/oq8Fn) by Stuart Whittaker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Metal Dragon" (https://skfb.ly/o8wB9) by Vetech82 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Greedy Octopus's Treasure Chest" (https://skfb.ly/opDBK) by Vetech82 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
