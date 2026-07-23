@@ -221,6 +221,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Bug" (https://skfb.ly/o9WwQ) by Gate is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Weekly Challenge (14) Bug" (https://skfb.ly/ou6YU) by 21some is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "lil' Grub Bug" (https://skfb.ly/oPBnw) by Lou! is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylised Thatch Roundhouse" (https://skfb.ly/oq8Fn) by Stuart Whittaker is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
