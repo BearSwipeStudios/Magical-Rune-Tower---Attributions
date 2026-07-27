@@ -232,7 +232,10 @@ Your work inspires us and countless others in the community. ❤️🐾
 
 
 ## Images
-
+- <a href="https://www.flaticon.com/free-icons/animal" title="animal icons">Animal icons created by Rudiyana - Flaticon</a>
+- <a href="https://www.flaticon.com/free-icons/sheep" title="sheep icons">Sheep icons created by Magnific - Flaticon</a>
+- <a href="https://www.flaticon.com/free-icons/cow" title="cow icons">Cow icons created by surang - Flaticon</a>
+- <a href="https://www.flaticon.com/free-icons/goat" title="goat icons">Goat icons created by Aranagraphics - Flaticon</a>
 ---
 
 © 2025 Bear Swipe Studios – This document is for informational purposes only.
