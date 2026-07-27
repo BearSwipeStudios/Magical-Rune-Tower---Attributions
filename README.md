@@ -234,6 +234,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Low-Poly Spiral Candies Pack" (https://skfb.ly/6rvOu) by CleanCraft3D is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Material Test" (https://skfb.ly/o9FvK) by Rocco Giandomenico is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized clouds" (https://skfb.ly/ouKyu) by lavakongen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Sweet Potato" (https://skfb.ly/pBoRz) by _dark_alice_ is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
