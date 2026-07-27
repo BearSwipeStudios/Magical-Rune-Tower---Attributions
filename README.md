@@ -225,6 +225,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Greedy Octopus's Treasure Chest" (https://skfb.ly/opDBK) by Vetech82 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Milk Container - Low Poly" (https://skfb.ly/ouLUA) by iKamik is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Lon Lon Ranch Milk Bottle" (https://skfb.ly/oHSsr) by libblekibble is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Cartoon Alchemist desk" (https://skfb.ly/owHzS) by Spartwoo_3D_ARTIST is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
