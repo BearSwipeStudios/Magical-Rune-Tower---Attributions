@@ -238,6 +238,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Fantasy Mushroom 02 - Game Ready 3D Model" (https://skfb.ly/pGCrY) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Mushroom 04 - Game Ready 3D Model" (https://skfb.ly/pGAFS) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Fantasy Mushroom 01 - Game Ready 3D Model" (https://skfb.ly/pGAzE) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "DVINE COUNTESS" (https://skfb.ly/oPEUM) by XOIAL is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
