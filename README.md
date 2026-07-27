@@ -227,6 +227,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Lon Lon Ranch Milk Bottle" (https://skfb.ly/oHSsr) by libblekibble is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cartoon Alchemist desk" (https://skfb.ly/owHzS) by Spartwoo_3D_ARTIST is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "[Monster] Bomb Minion from Aquatic Monsters Pack" (https://skfb.ly/oRozK) by Messrs is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Poison Bomb 2019" (https://skfb.ly/onxBo) by cwasden is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
