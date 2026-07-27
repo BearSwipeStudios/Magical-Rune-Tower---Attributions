@@ -235,6 +235,9 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Material Test" (https://skfb.ly/o9FvK) by Rocco Giandomenico is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized clouds" (https://skfb.ly/ouKyu) by lavakongen is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Sweet Potato" (https://skfb.ly/pBoRz) by _dark_alice_ is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Fantasy Mushroom 02 - Game Ready 3D Model" (https://skfb.ly/pGCrY) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Fantasy Mushroom 04 - Game Ready 3D Model" (https://skfb.ly/pGAFS) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Fantasy Mushroom 01 - Game Ready 3D Model" (https://skfb.ly/pGAzE) by Delzaar Studio is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
