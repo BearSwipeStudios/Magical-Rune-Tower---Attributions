@@ -231,6 +231,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Fantasy Potion Set" (https://skfb.ly/pwvxA) by Logan S. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Pirate Treasure Chest - Game Ready Asset" (https://skfb.ly/oPNMu) by rkna is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Magic broom" (https://skfb.ly/oAIzX) by Forel" is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Low-Poly Spiral Candies Pack" (https://skfb.ly/6rvOu) by CleanCraft3D is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
