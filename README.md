@@ -243,6 +243,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "stylized violin" (https://skfb.ly/oEPEs) by demmerize is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Bow" (https://skfb.ly/6TFx6) by Manuela Reis is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Mystic Bow" (https://skfb.ly/pASFE) by zan_du_ro is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "The Wizard's Enigmatic Cabin" (https://skfb.ly/6R6rx) by Macro is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
