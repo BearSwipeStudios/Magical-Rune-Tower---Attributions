@@ -242,6 +242,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Stylized Dragon Skull" (https://skfb.ly/pC7HN) by Jungle Jim is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "stylized violin" (https://skfb.ly/oEPEs) by demmerize is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Bow" (https://skfb.ly/6TFx6) by Manuela Reis is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Mystic Bow" (https://skfb.ly/pASFE) by zan_du_ro is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
