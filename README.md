@@ -241,6 +241,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "DVINE COUNTESS" (https://skfb.ly/oPEUM) by XOIAL is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Dragon Skull" (https://skfb.ly/pC7HN) by Jungle Jim is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "stylized violin" (https://skfb.ly/oEPEs) by demmerize is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Stylized Bow" (https://skfb.ly/6TFx6) by Manuela Reis is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
