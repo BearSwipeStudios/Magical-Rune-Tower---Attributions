@@ -253,6 +253,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "PineCone" (https://skfb.ly/opGzy) by MushyDay is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Low Poly Stylize Grenade Pack" (https://skfb.ly/o9TKY) by LowPolyBoy is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Medieval House and Tower Diorama" (https://skfb.ly/pADFJ) by Ünal Altındağ is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "The Noble Craftsman" (https://skfb.ly/NA86) by olmopotums is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
