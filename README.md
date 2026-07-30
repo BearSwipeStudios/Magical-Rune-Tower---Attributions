@@ -257,6 +257,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "ThroneRoom" (https://skfb.ly/6XSF6) by Ddvc is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Medieval Wooden Beer Mug" (https://skfb.ly/oOyFM) by Mathieu Beauparlant is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Flag" (https://skfb.ly/6ZD8R) by rukitu is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Domesticated Garden Gnome" (https://skfb.ly/pDLGC) by Schmoldt5000 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
