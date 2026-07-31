@@ -271,7 +271,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - <a href="https://www.flaticon.com/free-icons/sheep" title="sheep icons">Sheep icons created by Magnific - Flaticon</a>
 - <a href="https://www.flaticon.com/free-icons/cow" title="cow icons">Cow icons created by surang - Flaticon</a>
 - <a href="https://www.flaticon.com/free-icons/goat" title="goat icons">Goat icons created by Aranagraphics - Flaticon</a>
-- <li><strong>Poster Asset:</strong> "The fishes of the Nile." (Plate XXXII) by Boulenger, George Albert; Loat, L., obtained via <a href="https://commons.wikimedia.org/wiki/File:The_fishes_of_the_Nile_(Pl._XXXII)_(6815495798).jpg" target="_blank">Wikimedia Commons</a>, used under the <a href="https://creativecommons.org/licenses/by/2.0/" target="_blank">Creative Commons Attribution 2.0 Generic</a> license. Source material originally published in 1907 via <a href="https://www.biodiversitylibrary.org/page/35727402" target="_blank">Biodiversity Heritage Library</a>. (Modified for game integration)</li>
+- <li><strong>Poster Asset:</strong> "The fishes of the Nile." (Plate XXXII) by Boulenger, George Albert; Loat, L., obtained via <a href="https://commons.wikimedia.org/wiki/File:The_fishes_of_the_Nile_(Pl._XXXII)_(6815495798).jpg" target="_blank">Wikimedia Commons</a>, used under the <a href="https://creativecommons.org/licenses/by/2.0/" target="_blank">Creative Commons Attribution 2.0 Generic</a> license. Source material originally published in 1907 via <a href="https://www.biodiversitylibrary.org/page/35727402" target="_blank">Biodiversity Heritage Library</a> (Modified for game integration).</li>
 ---
 
 © 2025 Bear Swipe Studios – This document is for informational purposes only.
