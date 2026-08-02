@@ -260,6 +260,7 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "Domesticated Garden Gnome" (https://skfb.ly/pDLGC) by Schmoldt5000 is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Blue Witch" (https://skfb.ly/6ZMoC) by moxstudios is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spellbound Mailbox" (https://skfb.ly/6ZIUL) by nickheitzman is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "LowPoly Stylized Red Color Stool" (https://skfb.ly/oEtnV) by cat is activated is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 
 
   
