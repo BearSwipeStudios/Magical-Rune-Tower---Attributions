@@ -63,7 +63,6 @@ Your work inspires us and countless others in the community. ❤️🐾
 - "EGG LAVA" (https://skfb.ly/ptGPs) by Ny3ko is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Cut Nail" (https://skfb.ly/p87nt) by Recourse Design ltd. is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Stylized Shield" (https://skfb.ly/6UWE7) by Arnold Konrad is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
-- "Low Poly Stylized Door" (https://skfb.ly/optDK) by Murat Can ÜNAL is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Garden (stylized pack)" (https://skfb.ly/oWTQA) by PeLmEsHkO is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spider Potion" (https://skfb.ly/ossxX) by Enoly is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
 - "Spider" (https://skfb.ly/oKnWD) by Gektark is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
